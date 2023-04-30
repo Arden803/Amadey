@@ -1,0 +1,2 @@
+# Amadey
+AMADEY CRACKED
